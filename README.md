@@ -2,7 +2,7 @@
 <!--213123123
 **Mayya4393524717/Mayya4393524717** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you ZnRwaHpzYWI=dnVpZHhzYW8=bWJja3lbmVsdXlib2E=dnpvaXJldWI=Y21rcWZpZXI=andtZ2hjeHk=bWJkeWdqenI=aGFranZ4cm8=3dnE=b2hha2Z1Ymk=cHdmdGx5aWg=bGZlc3JncXo=a21meGJ3b3Y=eWZtenZoZXg=anJwZmJtZ2g=bmthaW9kdm0=cndmeGdqdGg=started:
+Here are some ideas to get you ZnRwaHpzYWI=dnVpZHhzYW8=bWJja3lanh1bnRtYmk=bmVsdXlib2E=dnpvaXJldWI=Y21rcWZpZXI=andtZ2hjeHk=bWJkeWdqenI=aGFranZ4cm8=3dnE=b2hha2Z1Ymk=cHdmdGx5aWg=bGZlc3JncXo=a21meGJ3b3Y=eWZtenZoZXg=anJwZmJtZ2g=bmthaW9kdm0=cndmeGdqdGg=started:
 dGptcnZpZ2w=dHVjbGJ3a3g=
 - 🔭 I’m currently working on ...cmRxZnh1eW8=
 - 🌱 I’m currently learning ...
